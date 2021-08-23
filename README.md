@@ -1,6 +1,6 @@
 [![Grayson-s-Gaming-Den-2.png](https://i.postimg.cc/pT14kpr3/Grayson-s-Gaming-Den-2.png)](https://postimg.cc/1nwv3RpK)</br></br></br>
 <img  align = 'right' src='https://i.postimg.cc/sgvrZzLx/Astro-modified.png' border='0' width = "230">
-### <img src = "https://media.giphy.com/media/VgCDAzcKvsR6OM0uWg/giphy.gif" width = "50"> U< poco más sobre mí ...  ></br>
+### <img src = "https://media.giphy.com/media/VgCDAzcKvsR6OM0uWg/giphy.gif" width = "50"> Un poco más sobre mí ... </br>
 
  <em> <b> Me encanta conectarme con diferentes personas </b>, así que si quieres di <b> hola, ¡será un placer conocerte más! </b> :) </em>
 <p>Soy estudiante de la Carrera de informática , extremadamente motivada para desarrollar constantemente mis habilidades y crecer profesionalmente, Confío en mi capacidad para generar ideas interesantes. Todo se aprende.</br>
